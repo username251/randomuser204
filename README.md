@@ -11,4 +11,4 @@ You can click the Preview link to take a look at your changes.
 
 
 
-WHY I NEED DESCRIBE MYSELF
+WHY (do) I NEED (to) DESCRIBE MYSELF
